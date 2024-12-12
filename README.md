@@ -36,7 +36,7 @@ app/web/pc三端可接，可接受定制防护模块
 
 #### 联系我们
 
-1. https://i.afbcs.cn/jT8KTh
+1. [微信企业群](https://i.afbcs.cn/jT8KTh)
 2.v：qlcjy668
 3.q：2224731442/1366667521
 
